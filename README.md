@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @icemann30
+- 👀 I’m interested in Youtube starting a buiness
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on Youtube
+- 📫 One way to reach me is by subscribeing to my channle
